@@ -1,4 +1,4 @@
-Tiffany IRish Ecoy
+Tiffany Irish Ecoy
 Group 3A
 SAKILA I
 
